@@ -1,1 +1,2 @@
-# -
+meu nome é mathues, tenho 15 anos  moro na cidade de querência do norte, estudo do colégio castro alves.
+Cidade  não é tão grande mais é um lugar bom de se viver, por en quanto as oportunidades de trabalho não muito boas mais ok...
